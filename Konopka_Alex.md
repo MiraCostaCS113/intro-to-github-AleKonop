@@ -1,0 +1,1 @@
+Hi my name is Alexander but I go by Alex, Im a Computer Science major at Mira Costa Community College. I graduated from Rancho Buena Vista High School in 2023, where I dedicated my time to studying Physics, and Computer Science.
